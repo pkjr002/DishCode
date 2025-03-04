@@ -22,8 +22,8 @@
 `2 (15oz)` Cans Tomato Sauce    
 `2 (15oz)` Cans Petite Diced Tomatoes    
 
-`1 (15oz)` Cans Black Beans     
-`1 (15oz)` Cans White Beans     
+`1 (15oz)` Can Black Beans     
+`1 (15oz)` Can White Beans     
 `1 (15oz)` Can Red Kidney Beans    
 `1 (15oz)` Can Garbanzo Beans    
 `1 (16 oz)` jar deli-sliced jalapeño peppers, drained     
